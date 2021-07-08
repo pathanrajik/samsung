@@ -1,0 +1,2 @@
+# samsung
+J7
